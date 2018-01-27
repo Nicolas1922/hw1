@@ -1,5 +1,5 @@
 ## Ефремов Николай Евгеньевич
-! [Это я] (https://pp.userapi.com/c633922/v633922415/3ace9/6NpU7ondIB0.jpg)
+| [Это я] (https://pp.userapi.com/c633922/v633922415/3ace9/6NpU7ondIB0.jpg)
 
 Место, дата рождения 
 ===================
@@ -11,7 +11,7 @@
 ===================
 - [Мой ВК] (https://vk.com/nikolay.efremov)
 - 89031487570
-- nicolainform@yandex.ru
+- [Моя почта] (nicolainform@yandex.ru)
 
 Увлечения  
 ==============
