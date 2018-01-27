@@ -11,7 +11,7 @@
 ===================
 - [Мой ВК] (https://vk.com/nikolay.efremov)
 - 89031487570
-- [Моя почта] (nicolainform@yandex.ru)
+- (nicolainform@yandex.ru)
 
 Увлечения  
 ==============
